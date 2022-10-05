@@ -1,1 +1,1 @@
-# practice
+# Mango's journal
